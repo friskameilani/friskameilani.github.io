@@ -8,7 +8,7 @@ Mahasiswa Ilmu Komputer IPB\
 friska.meilani19@gmail.com*
 
 ## Pendidikan
-### Institut Pertanian Bogor — Skomp
+### Institut Pertanian Bogor
 Agustus 2017 - Sekarang
 
 ### SMA Negeri 8 Tangerang
