@@ -1,4 +1,4 @@
-**Friska Meilani**
+**Friska Meilani XX**
 ===========================
 Mahasiswa Ilmu Komputer IPB\
 \
