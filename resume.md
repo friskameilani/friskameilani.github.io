@@ -29,4 +29,4 @@ Juni 2011 - Juni 2014
 - Ms. Excel
 
 ## Hobi
-Membaca, menonton, dan berenang
+Membaca, menonton, dan berenang.
