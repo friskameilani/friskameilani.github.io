@@ -2,7 +2,7 @@
 ===========================
 Mahasiswa Ilmu Komputer IPB\
 \
-*Asrama Putri A5 IPB \
+*Asrama Putri A5 IPB \[newline]
 +62 821-1271-7543 \
 friska.meilani19@gmail.com*
 
