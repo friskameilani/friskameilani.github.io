@@ -18,9 +18,9 @@ Juni 2011 - Juni 2014
 
 
 ## Kepanitiaan
-- IPB Archery Open - Sekben Humas
-- CPSC 2018 - Sekdiv Enkom
-- Agristetic 2018 - Staff Enkom
+- IPB Archery Open --- Sekben Humas
+- CPSC 2018 --- Sekdiv Enkom
+- Agristetic 2018 --- Staff Enkom
 
 ## Keahlian
 - Photoshop
